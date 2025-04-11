@@ -1,0 +1,1 @@
+# grafuka-komputerowa.io
